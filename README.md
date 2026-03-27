@@ -4,4 +4,4 @@
 - e distribuir o mesmo em local amplamente populado.
 - a ideia principal é dar dicas contra golpes e como se proteger de golpes em locais de compra
 - algumas recomendações do que fazer caso tenha caido em um golpe
-- 
+
